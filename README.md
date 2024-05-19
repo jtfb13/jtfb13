@@ -1,1 +1,1 @@
-# EX294 realted materials
+# EX294 related materials
